@@ -49,9 +49,6 @@ Jose Manuel Cartas Sanchez
 
 
 
-
-Hola Soy Gus Leyva creo que ya pude!!!!
-=======
 UV campus veracruz 
 
 
@@ -60,10 +57,9 @@ Hola Soy José Alfonso , quiero contribuir!!
 
 ---------------------------------------------
 
-
 Soy Jose Manuel  Cartas Sanchez
 Quiero ser contribuidor 
 UV campus Veracruz
 
-
+Hola soy Samantha Jimenez, del Instituto Tecnologico de Tijuana
 
